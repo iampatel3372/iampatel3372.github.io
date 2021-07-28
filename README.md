@@ -1,1 +1,1 @@
-# iampatel3372.gihub.io
+# iampatel3372.github.io
